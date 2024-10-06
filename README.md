@@ -7,7 +7,7 @@
 
 - 📫 How to reach me **workwithadithya01@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1mkQHWJ2l3tp4y_p9nTITDYytj0rGqdoc/view?usp=sharing](https://drive.google.com/file/d/1mkQHWJ2l3tp4y_p9nTITDYytj0rGqdoc/view?usp=sharing)
+- 📄 Know about my experiences [https://drive.google.com/file/d/1F6UBoJ02rKqldToWI3EW-ciIAken06kT/view?usp=sharing)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
